@@ -1,0 +1,1 @@
+# -Youshifo-console-program-to-help-you-learn-japanese-numbers-1-20-python-
